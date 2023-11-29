@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tanchious
+- 🌱 I major in Aerospace Engineering and minor in Computer Science
+- 📫 My email address is jaytan20212021@gmail.com
